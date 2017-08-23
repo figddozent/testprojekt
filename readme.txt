@@ -1,5 +1,11 @@
+
 Dieses bitte erst lesen!
 
-Dann ausf�hren.
+Dann ausführen.
 
-OJEEAH!
+Liebe Grüße
+Aber bitte mit Herz! ♥
+Oder mit Sonnenschein ☀
+---MM--
+
+Kein Atomstrom in mein Wohnhome!
