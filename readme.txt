@@ -1,5 +1,8 @@
 Dieses bitte erst lesen!
 
-Dann ausf�hren.
+Dann ausführen.
 
 Aber bitte mit Herz! ♥
+
+OJEEAH!
+
